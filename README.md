@@ -6,4 +6,4 @@ KAMISETEMBANG atau Keluarga Alumni STM Pembangunan/SMKN 7 Semarang merupakan wah
 
 KAMISETEMBANG berdiri sejak tahun 1986, namun secara legal sebagai perkumpulan sejak terbit Akta Notaris TH. Titi S.A.D.W Bagiono, SH Nomor 2, tanggal 21 Mei 1996. Sebagai paguyuban alumni SLTA pertama dan terbesar di Indonesia, jejaring KAMISETEMBANG sudah mendirikan berbagai cabang seperti di Kudus dan sekitarnya, Ungaran-Salatiga-Ambarawa, Cilegon, Tangerang Raya, Bogor, Bekasi, Cirebon, Balikpapan, Bontang, Jawa Timur, dan sekitarnya.
 
-Lebih lengkap kunjungi https://kamisetembang.com
+Lebih lengkap kunjungi https://kamisetembang.org
